@@ -1,1 +1,0 @@
-# data-mahasiswa-MJS-210551097
